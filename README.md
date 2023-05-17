@@ -1,0 +1,1 @@
+# FileEsAdatszerkezetek_egesz
